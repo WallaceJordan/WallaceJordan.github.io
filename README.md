@@ -20,5 +20,6 @@
 ## Experience
 -**Home Depot**
   - Worked as a Building and Lumber Sales Associate
-  - Provided excellent customer service to any and all customers
+  - Provided excellent customer service to all customers
   - Learned how to manage time and develop a game plan complete customer orders effectively
+  - Helped develop leadership and problem solving skills
